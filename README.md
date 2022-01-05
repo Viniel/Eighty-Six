@@ -1,3 +1,3 @@
 # Eighty-Six
 
-Eighty-Six is a really good anime! yessir
+Eighty-Six is a really good anime! yeah big boy
