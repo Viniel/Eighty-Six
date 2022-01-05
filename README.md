@@ -1,3 +1,3 @@
 # Eighty-Six
 
-Eighty-Six is a really good anime hahahaha
+Eighty-Six is a really good anime!
